@@ -1,1 +1,1 @@
-# étude_marché_emploi_secteur_banque_assurances_-strasbourg
+# étude_marché_emploi_secteur_banque_assurances_strasbourg
